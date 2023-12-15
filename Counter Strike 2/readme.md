@@ -1,0 +1,2 @@
+is Free to play!
+https://store.steampowered.com/app/730/CounterStrike_2/
