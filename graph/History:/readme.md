@@ -1,1 +1,2 @@
 - [the entire history of counter-strike explained](https://youtu.be/B35zWsp0r4Y)
+- [Counter Strike Should Be Dead By Now](https://youtu.be/vGUd4GqK9Jg)
